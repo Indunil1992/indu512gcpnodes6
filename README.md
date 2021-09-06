@@ -1,0 +1,1 @@
+# indu512gcpnodes6
